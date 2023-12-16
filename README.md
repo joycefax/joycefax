@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @joycefan
+- 👋 Hi, I’m @joyce Fritts
 - 👀 I’m interested in outdoor adventures, crossfit and learning. 
 - 🌱 I’m currently learning lunix and Network+
 - 💞️ I’m looking for the job in IT field 
